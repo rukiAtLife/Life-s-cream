@@ -18,3 +18,6 @@ Anyways, this is the internet and hopefull "stuff you can never delete" will hel
 
 Sincerely,
 A Ruki @ Life. 
+
+
+-- Further notice: I'll keep doing 1 every two/one days so you always have something to read ---
