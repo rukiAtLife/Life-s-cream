@@ -20,4 +20,4 @@ Sincerely,
 A Ruki @ Life. 
 
 
--- Further notice: I'll keep doing 1 every two/one days so you always have something to read ---
+-- Further notice: I'll keep doing 1 every week so you always have something to read ---
